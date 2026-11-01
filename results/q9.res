@@ -1,0 +1,10 @@
+Luís Gonçalves|Jane Peacock
+Leonie Köhler|Steve Johnson
+François Tremblay|Jane Peacock
+Bjørn Hansen|Margaret Park
+František Wichterlová|Margaret Park
+Helena Holý|Steve Johnson
+Astrid Gruber|Steve Johnson
+Daan Peeters|Margaret Park
+Kara Nielsen|Margaret Park
+Eduardo Martins|Margaret Park
